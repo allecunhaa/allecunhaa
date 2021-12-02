@@ -1,5 +1,5 @@
 ### Oi, eu sou a Alessandra Cunha!!
-Bem vindo ao meu local de aprendizagem e suoperações
+Bem vindo (a) ao meu local de aprendizagem e superação
 
 <div align="center">
   <a href="">
